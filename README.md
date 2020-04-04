@@ -1,0 +1,1 @@
+# darikoiiiibuatkamu.github.oi
